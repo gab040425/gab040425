@@ -1,4 +1,4 @@
-# Hi, I'm Gabriel Chung Yi Jie 👋
+# Hi, I'm Chung Yi Jie 👋
 
 🎓 **Applied Artificial Intelligence Student at TH Rosenheim, Germany**
 
